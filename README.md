@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dawnhazed
+- 👋 Hi, I’m Nadaa Shafa Nadhifa aka @dawnhazed !!
 - 👀 I’m interested in Mobile Development
 - 🌱 I’m currently learning Android Development in Bangkit Acadmemy
 - 📫 How to reach me >> nadaashafa27@gmail.com
