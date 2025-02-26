@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nadaa Shafa Nadhifa aka @dawnhazed !!
 - 👀 I’m interested in Mobile Development
-- 🌱 I’m currently learning Android Development in Bangkit Acadmemy
+- 🌱 I just graduated and currently looking for new opportunities!
 - 📫 How to reach me >> nadaashafa27@gmail.com
 - 😄 Pronouns: she/her
