@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nadaa Shafa Nadhifa aka @dawnhazed !!
 - 👀 I’m interested in Mobile Development
-- 🌱 I just graduated and currently looking for new opportunities!
+- 🌱 I just graduated from Computer Engineering and currently looking for new opportunities!
 - 📫 How to reach me >> nadaashafan@gmail.com
 - 😄 Pronouns: she/her
